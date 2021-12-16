@@ -1,0 +1,5 @@
+- 👋 Assalomu aleykum mening ismim Amirxon.
+- 👀 Men kompyuter o'yinlarini sevib o'ynayman va musiqa tinglashni yoqtiraman.
+- 🌱 Men hozirda python dasturlas tilini o'rganayabman.
+- 💞️ Men bu sahifada o'zim bilgan ko'plab qiziqarli malumotlarni ulashmoqchiman.
+- 📫 Mening telefon raqamim+998975112620
